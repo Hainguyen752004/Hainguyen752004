@@ -1,6 +1,6 @@
 # Nguyen Chi Hai
 
-## AI Engineer | AI Marketing Specialist 
+## AI Engineer | AI Researcher
 
 ## 👋 About Me
 
